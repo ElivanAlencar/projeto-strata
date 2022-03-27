@@ -1,0 +1,2 @@
+# projeto strata
+ D:\MEUS DOCS PROGRAMAÇÃO\PROJETOS DO CURSO
